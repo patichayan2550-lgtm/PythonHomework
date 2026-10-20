@@ -1,2 +1,1 @@
-# PythonHomework
-# PythonHomework
+นางสาวปริชญา นัยนิตย์ 6912732122
